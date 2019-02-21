@@ -1,2 +1,1 @@
-# KrishnaRajputPK.github.io
-First website
+# Krishna Rajput
